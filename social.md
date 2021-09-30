@@ -103,6 +103,10 @@ Member Id: 5
 * [Github](https://github.com/Afungchwi/),
 
 
+Member Id: 1
+* [Facebook](https://web.facebook.com/njong.emy)
+* [Twitter](https://twitter.com/Elabrava20)
+* [Github](https://github.com/Njong392),
 
 
 
